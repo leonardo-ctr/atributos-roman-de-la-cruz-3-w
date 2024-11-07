@@ -37,10 +37,15 @@ prueba de envio de codigo y de screenshot
 ![image](https://github.com/user-attachments/assets/ffa2b305-212c-4507-a323-4efec5d256f8)
 ![image](https://github.com/user-attachments/assets/598d8815-7f45-4eb4-a6ba-362dff183df7)
 
+10.
+![image](https://github.com/user-attachments/assets/c50dd4b9-3056-451d-a7df-1367cec376a7)
+![image](https://github.com/user-attachments/assets/e370af70-c909-482c-b223-e474dee0ead0)
 
+11.
+![image](https://github.com/user-attachments/assets/32e6b0b8-fceb-4f29-8f34-dee2aa6bf0e3)
+![image](https://github.com/user-attachments/assets/a2ea7dbd-faf3-4389-a6c4-e30a053081b2)
 
-
-
-
-
+12.
+![image](https://github.com/user-attachments/assets/22407972-9277-46be-b9c2-7ac1f8a3db21)
+![image](https://github.com/user-attachments/assets/69fbe443-aa67-4a66-8a36-ffcc9f2badb6)
 
